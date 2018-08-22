@@ -1,1 +1,3 @@
 # demo-repository
+
+pa majku mu jebem vise...
